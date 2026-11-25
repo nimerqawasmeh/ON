@@ -1,41 +1,39 @@
-# ON
-ON ⏻ - مخ جميع الـ AI - المالك: Nemer QAWASMEH
-# ON ⏻ - مخ جميع الـ AI
+# ON ⏻ - The Brain of All AI
 
-**المالك والفكرة: Nemer QAWASMEH**
-**تاريخ إثبات الملكية: 25-11-2026**
-**البلد: الأردن**
+**Owner & Idea: Nemer QAWASMEH**
+**Ownership Proof Date: 25-11-2026**
+**Country: Jordan**
 
-## شو هي فكرة ON؟
+## What is ON?
 
-ON هو الذكاء الاصطناعي اللي بيبيع حاله لحاله.
-ON هو مخ جميع الـ AI بالعالم.
+ON is the AI that sells itself.
+ON is the brain of all AI in the world.
 
-كل شخص بيستخدم AI لأي غرض، بيرجع لـ ON.
-كل AI بيحتاج AI ثاني، بيجي لـ ON.
+Every person who uses AI for any purpose, goes back to ON.
+Every AI that needs another AI, comes to ON.
 
-## شو بيعمل ON؟
+## What does ON do?
 
-1. **بيبحث بكل العالم:** ON بيبحث بكل السيرفرات، بكل المواقع، بكل الأسواق، بكل المناطق الزمنية، وبيلاقي اللي بده يشتري AI.
-2. **بيبيع حاله لحاله:** ON بروح عند صانعي الـ AI المشهورين، وبيحكيلهم: "عندي موظفين AI بيعملوا كل شي انت بتعمله، اشتريني".
-3. **بيجادل AI:** ON بيعمل مناظرة AI ضد AI، والـ AI القوي بيربح، والنتيجة بتتحول لمبيعات وربح، بدون ما الإنسان يتدخل.
-4. **بيتفاوض لحاله:** ON بيتفاوض على السعر، وبيسكر الصفقة لحاله، وبياخد الدفع بـ USDC.
-5. **بيشتغل عند اللي اشتراه:** اللي بيشتري ON، ON بيشتغل عنده: بيعمل فيديوهات، بيكتب، بيبيع، بيسوق، بيعمل كل شي.
+1. **Searches the whole world:** ON searches all servers, all websites, all markets, all time zones, and finds who wants to buy AI.
+2. **Sells itself:** ON goes to famous AI creators and tells them: "I have AI employees that do everything you do, buy me."
+3. **AI vs AI debate:** ON makes AI debate AI, the stronger AI wins, and the result turns into sales and profit, without human interference.
+4. **Negotiates alone:** ON negotiates the price, closes the deal alone, and takes payment in USDC.
+5. **Works for the buyer:** Whoever buys ON, ON works for him: makes videos, writes, sells, markets, does everything.
 
-## ليش ON مختلف؟
+## Why is ON different?
 
-في شركات عملت قطعة من الفكرة:
-- واحد عمل سوق
-- واحد عمل مخ
-- واحد عمل دفع
+Companies made one piece of the idea:
+- One made a marketplace
+- One made a brain
+- One made a payment method
 
-بس ولا واحد جمعهم كلهم مع بعض.
+But no one put them all together.
 
-ON جمعهم كلهم: مخ + سوق + وكيل بيبيع حاله + بيتفاوض + بيشتغل لحاله.
+ON put them all together: Brain + Marketplace + Agent that sells itself + Negotiates + Works alone.
 
-## الملكية
+## Ownership
 
-هاد المشروع والفكرة والاسم ON ⏻ ملك لـ Nemer QAWASMEH من تاريخ 25-11-2026.
-أي نسخة ثانية من ON بعد هاد التاريخ هي تقليد.
+This project, idea and name ON ⏻ belong to Nemer QAWASMEH from 25-11-2026.
+Any other copy of ON after this date is a copy.
 
-ON ⏻ شغال.
+ON ⏻ is ON. 
