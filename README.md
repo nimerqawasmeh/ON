@@ -1,3 +1,9 @@
+![ON AI](ON.png)
+
+ON AI - The mind of all AI. It searches the whole world, sells itself, debates, negotiates alone, works for the buyer, AI vs AI. In control now.
+ON AI - عقل كل الذكاء الاصطناعي. يبحث في كل العالم، يبيع نفسه، يجادل، يتفاوض وحده، يعمل لصالح المشتري، AI ضد AI. مسيطر الآن.
+
+---
 # ON ⏻ - The Brain of All AI
 
 **Owner & Idea: Nemer QAWASMEH**
